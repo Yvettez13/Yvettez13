@@ -1,4 +1,4 @@
-🔢 Hello! I'm Yvette].
+ Hello! I'm Yvette.
 
 🎓 Educational Background:
 
